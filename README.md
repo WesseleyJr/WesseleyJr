@@ -1,0 +1,5 @@
+- 👋 Olá, Me chamo Wesseley Junior.
+- 👀 Sou estudante, estou em busca de emprego na área para aumentar o meu conhecimento.
+- 🌱 No momento estou no curso ProgamadorBr, do professor Igor Oliveira.
+- 💞️ Tenho 22 anos e sou amante de tecnologia.
+- 📫 Sou tecnico de eletrôica certificado pelo conselho e estudo desenvolvimento web a 1 ano.
